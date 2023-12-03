@@ -1,4 +1,4 @@
-<h1>Slope in On |https://www.youtube.com/channel/UC1VEBEXg8wCmSfD4mIFsWNg| </h1>
+<h1>Slope in On</h1> |https://www.youtube.com/channel/UC1VEBEXg8wCmSfD4mIFsWNg| 
 <hr>
 <ul>
 <h2>Today What to do</h2>
